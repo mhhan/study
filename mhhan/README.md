@@ -1,1 +1,1 @@
-more then better now!
+now more than ever
